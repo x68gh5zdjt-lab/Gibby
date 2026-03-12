@@ -1,5 +1,3 @@
-<img width="1062" height="869" alt="image" src="https://github.com/user-attachments/assets/6d62d2ca-e6fb-4511-b935-3cf344cdeb52" />#Jump for brainrot! 
-
 ## Step 1! - GO to the roblox website! 
 # A - Google roblox! 
 # B - Click on the first link! 
