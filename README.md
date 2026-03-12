@@ -14,6 +14,7 @@ Welcome to Jump For Brainrot where the only goal is to jump higher and higher! �
 🧗‍♂️ Climb Towers
 🏆 Earn Wins
 ✨ Unlock New Pets
+
 How high will your Brainrot take you?
 
 <img width="1062" height="869" alt="image" src="https://github.com/user-attachments/assets/1e713ad9-dc9f-4c36-afa7-f686d6e79b66" />
