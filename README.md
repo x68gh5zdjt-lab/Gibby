@@ -2,6 +2,18 @@
 ## A - Google roblox! 
 ## B - Click on the first link! 
 ## C - Make an account! 
-## D - Look up the game "Jump for Brainrot!" or go to the link 
+## D - Go to the link below and install roblox  
 https://www.roblox.com/share?code=fdd234120cd9604282f3221801fd6ec7&type=ExperienceDetails&stamp=1773315274484
+
+
+# Step 2 - Play!!
+
+Welcome to Jump For Brainrot where the only goal is to jump higher and higher! 🚀
+
+🥚 Hatch Awesome Pets
+🧗‍♂️ Climb Towers
+🏆 Earn Wins
+✨ Unlock New Pets
+How high will your Brainrot take you?
+
 <img width="1062" height="869" alt="image" src="https://github.com/user-attachments/assets/1e713ad9-dc9f-4c36-afa7-f686d6e79b66" />
